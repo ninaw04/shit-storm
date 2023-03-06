@@ -1,0 +1,1 @@
+Through the torments from the mother-in-law, John/Jane Doe decides to pull a petty prank found on the internet; by putting laxatives in the MIL food. Grinded one too many pills later, she died, shitting herself to death. John/Jane Doe needs to hide her body with the help of their husband and sister.
